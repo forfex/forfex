@@ -1,6 +1,6 @@
 Welcome to profile of 4FX! 😎🤟</br>
 Graphic designer (UI/UX, LOGOS, BASICALLY EVERYTHING), photographer.</br>
-Working with awesome team on piaskownica.city - to entertain others.</br>
+Working with awesome team on piaskownica.city</br>
 
 My socials:</br>
 📘 www.fb.com/forfexpl</br>
